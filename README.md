@@ -1,0 +1,2 @@
+# richboyscrytoo.tech
+richboyscrytoo.tech
